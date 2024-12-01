@@ -39,4 +39,4 @@
 
 ## 联系方式
 
-- 电子邮件：[re_live27@163.com](mailto:re_live27@163.com)
+- 电子邮件：[relive27@outlook.com](mailto:relive27@outlook.com)
